@@ -2,30 +2,30 @@ CHRISTMAS DANCE
 
     
 The Christmas dance was held on
-Frida’, December 17, and was
+Friday, December 17, and was
 greatly enjoyed by all present. The
 decoration scheme consisted of holly
 with other red and green trimmings,
 which lent a very neat aspect to the
-Auditorium. Refreshments, consist
+Auditorium. Refreshments, consist-
 ing of ice cream and cake, were
 served during the intermission,
-President and Mi v . R. \\ . Silvester,
+President and Mrs. R. W. Silvester,
 assisted by Captain Tydings and
 Miss S. B. Sheriff received the
 guests.
 Among those who attended were:
-Prof. and Mrs. Harrison, Prof, and Mrs.
-Taliaferro, l>r. and Mrs. Taliaferro, Dr.
-and Mrs. McDonnell, Prof, and Mrs.
-Crisp, Prof, and Mrs. Gwlnner, Mr. and
-Mrs. M'oltv. Mrs. Ciiacchetti, Prof. Walls,
+Prof. and Mrs. Harrison, Prof. and Mrs.
+Taliaferro, Dr. and Mrs. Taliaferro, Dr.
+and Mrs. McDonnell, Prof. and Mrs.
+Crisp, Prof, and Mrs. Gwinner, Mr. and
+Mrs. M'olty, Mrs. Giacchetti, Prof. Walls,
 Prof. Hibbard, Captain Adams, Lieut.
-Cole, Sergt. Hatton, Sergt. Mndd. Corp.
+Cole, Sergt. Hatton, Sergt. Mudd. Corp.
 Crapster. Sergt. Silvester. Sergt. Glass,
-Cade.s W. (I. ('ole, Munson, Unpple, Trass
-zare. Hums, DeMarco, Newnam. Mays.
-Captain Alien, Mr. S.aiuer, oietu. ii.nri
+Cadets W. G. Cole, Munson, Rupple, Traz-
+zare. Burns, DeMarco, Newnam. Mays.
+Captain Allen, Mr. Stabler, Lietu. ii.nri
 ilton, Corp. Barrier, Sergt. Devilbiss,
 Cadet Furst, Sergt. Little, Corp. Warfield,
 Sergt. Silvester. Mr. llamsburgh.
