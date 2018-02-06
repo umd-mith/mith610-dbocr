@@ -1,10 +1,10 @@
-EDITORIAL
+﻿EDITORIAL
 
    
 With this, the first issue of the
 Triangle, we extend greetings to the
-friends of M. A. (A: May you live
-long and prosper! And this is ex
+friends of M. A. C.: May you live
+long and prosper! And this is ex-
 actly the sentiment we trust you will
 have for our college paper which
 brings this greeting to you.
@@ -13,12 +13,12 @@ student publication has been keenly
 felt, and a few months ago the
 Alumni of this college took the
 initial step toward founding a
-Journal of their own. in order that
-they might ke.ep fresh old associa
-tion and be-in with
-college affairs. As JjjMjfc^owever,
-col lege
-. I ' gv>
+Journal of their own in order that
+they might keep fresh old associa-
+tion and be in constant touch with
+college affairs. As so . . . however,
+as the Alumni knew . . . a college
+. . . lished by the stu-
 •' 111 ! 11 ’''' l
 7r y 'J y'V;'; i .*^p r
 ' :! 1 i" ; I' ■_ i
