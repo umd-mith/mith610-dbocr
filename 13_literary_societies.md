@@ -1,9 +1,9 @@
 LITERARY SOCIETIES
 
     
-Literary societies, where tegular
+Literary societies, where regular
 old-fashioned, red-hot debates can be
-held, and fiery declamations can he
+held, and fiery declamations can be
 delivered, represent a most important
 adjunct to the regular college work.
 The first meeting of both the
