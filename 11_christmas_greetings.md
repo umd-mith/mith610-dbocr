@@ -2,17 +2,15 @@ CHRISTMAS GREETINGS
 
     
 In wishing a “Merry Christinas' 1
-to all of the readers of the TrianglW,
+to all of the readers of the Triangle,
 the Board of Editors are but giving
-expression to the feeling that per
-vades the earth wherever Christian
-civilization spreads its benign in
-fluence —
+expression to the feeling that pervades the earth wherever Christian
+civilization spreads its benign influence —
 “From Greenland's icy mountain.
 To India’s coral strands,”
-when the gladsome Ynletide draws
+when the gladsome Yuletide draws
 gaily near.
-Christmas is a worry season.
+Christmas is a merry season.
 Scott expresses the true Christmas
 sentiment in the well-known lines;
 “The night is dark, the wind blows chili;
@@ -21,11 +19,9 @@ We’ll keep our Christmas merry still.”
 Christmas will be merry whether,
 Scrooge-like, we refuse to share the
 pleasure or throw the doors of our
-hearts wide open to its cheerful in
-fluences. The spirit of Christmas is
+hearts wide open to its cheerful influences. The spirit of Christmas is
 tugging at our sleeves, if it be not
-already filling our hearts. It signi
-fies “Peace on Earth, Good Will to
+already filling our hearts. It signifies “Peace on Earth, Good Will to
 Men.” It finds its expression in love
 of home, love of children, love of
 humanity. It warms the cockles of
