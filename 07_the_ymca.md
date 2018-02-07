@@ -1,23 +1,21 @@
 THE Y. M. C. A.
 
     
-The work of the N . M. ('. A. dur
-ing the past term has been most ex
+The work of the Y.M.C.A. dur-
+ing the past term has been most ex-
 cellent and most gratifying to the
 officers and members. Under the
-leadership of Major (). 11. Saunders
+leadership of Major O. H. Saunders
 the regular meetings held on Sunday
-evening of each week have been in
+evening of each week have been in-
 teresting and highly instructive.
 The program during the last term
-has included a series ot talks on
-’• Men iif Ihe <)M
-corresponding series tlhp- •tiextJ
-term will be entitled ; tfc<f ,, the
+corresponding series for the next
+term will be entitled '... the
 New Testament.’
-Kleven Ilihle StudvfßHpWwW
-been organized, with
-of seventy-five student memne#.
+Eleven Bible Study ... have
+been organized, with all ...
+of seventy-five student members,
 under the leadership of student
 leaders. These leaders are organized
 into a Normal ('lass, under the
