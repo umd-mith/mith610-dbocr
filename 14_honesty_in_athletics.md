@@ -31,7 +31,7 @@ solitaiy one of those fellows is a
 clean, straight, simon pure, under
 graduate student of M. A. (k, and
 proud of the fact that there is not
-a linger on his team.
+a linger on his team. Boo
 The faculty and students of this
 institution long since reached the
 conclusion that there was more
