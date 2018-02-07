@@ -3,8 +3,8 @@ A BANQUET AT BERWYN
     
 Mr. Middleton entertained his
 large Sunday School class at a ban
-quet on Friday, December 10, 1900.
-A large number of M. A. ('. Cadets
+quet on Friday, December 10, 1909.
+A large number of M. A. C. Cadets
 are members of the class and were
 present. A fine turkey dinner was
 served, after which Mr. Middleton
